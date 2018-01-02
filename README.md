@@ -1,0 +1,2 @@
+# sistemkhusus
+bitkoin global
